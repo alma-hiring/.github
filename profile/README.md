@@ -18,4 +18,7 @@ At Alma, we put finance at the service of commerce by allowing merchants to incr
 
 ## Join us!
 
-Check [our LinkedIn page](https://www.linkedin.com/company/alma-alma-alma),  [our profile on Welcome to the Jungle](https://www.welcometothejungle.com/fr/companies/alma) and [Join us!](https://boards.eu.greenhouse.io/alma31) 🤗
+Check out 
+* our [LinkedIn page](https://www.linkedin.com/company/alma-alma-alma),
+* our [profile on Welcome to the Jungle](https://www.welcometothejungle.com/fr/companies/alma), and
+* our [job openings](https://boards.eu.greenhouse.io/alma31) 🤗
